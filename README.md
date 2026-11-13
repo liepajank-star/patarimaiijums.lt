@@ -1,0 +1,2 @@
+# patarimaiijums.lt
+balbaala
